@@ -1,4 +1,3 @@
-# vai.cdax
+# VAI.CDAX
 VAI.CDAX
-I AM THE BEST 
 @HOLLENVAI
